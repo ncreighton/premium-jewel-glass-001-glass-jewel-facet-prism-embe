@@ -1,0 +1,2 @@
+# premium-jewel-glass-001-glass-jewel-facet-prism-embe
+Tired of flat, lifeless Notion pages that feel more like spreadsheets than creative canvases? The Glass Jewel Facet &amp; Prism Embed Craft Lab transforms your workspace into a gallery of light and color with ready-to-use facets and prism overlays.  This template solves the pain of visual monotony by providing a library of jewel-like facets and prism e
